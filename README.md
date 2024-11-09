@@ -1,4 +1,4 @@
-# Developer, Seah Park
+# iOS Engineer, Seah Park
 
 How are you.
 
