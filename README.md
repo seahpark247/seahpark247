@@ -1,5 +1,5 @@
 # Software Engineer, Seah Park
 
-Hi, there! Not only building software, but also connecting dots between what the client wants and where money needs to flow.
+Hi, there! I am a software engineer, not only building software, but also connecting dots between the client's wants and where the money flows.
 
 ⬇️ Check out my apps down below! ⬇️✨✨
